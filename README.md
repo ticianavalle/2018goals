@@ -38,3 +38,7 @@ Games to play
 30. Uncharted: The Nathan Drake Collection: Uncharted 2: Among Thieves Remastered
 31. Uncharted: The Nathan Drake Collection: Uncharted 3: Drake's Deception Remastered
 32. Uncharted: The Nathan Drake Collection: Uncharted: Drake's Fortune Remastered 
+33. Darksiders
+34. Darksiders II
+35. Lego Star Wars
+36. 
