@@ -6,7 +6,7 @@ Books to read
 2. Think of a number de John Verdon
 
 Games to play
-1. Assassin's Creed II
+1. Assassin's Creed II - OK 01/02
 2. Assassin's Creed Brotherhood
 3. Assassin's Creed  Revelations
 4. What Remains of Edith Finch
@@ -42,3 +42,7 @@ Games to play
 34. Darksiders II
 35. Lego Star Wars
 36. Virginia
+37. Chrono Trigger
+38. The Unifinished Swan
+39. The Legend of Zelda
+
