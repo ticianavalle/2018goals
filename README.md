@@ -14,7 +14,7 @@ Games to play
 6. Submerged
 7. The Legend of Zelda Twilight Princess
 8. The Legend of Zelda Breath of the Wild
-9. Sonic Unleashed
+9. Sonic Unleashed - playing
 10. Bayonetta 2
 11. The Last of Us
 12. Indigo Prophecy
