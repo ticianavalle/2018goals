@@ -45,4 +45,7 @@ Games to play
 37. Chrono Trigger
 38. The Unifinished Swan
 39. The Legend of Zelda
+40. God of War III
+41. Heavy Rain
+42. Beyond Two Souls
 
