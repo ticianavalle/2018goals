@@ -4,6 +4,7 @@ Books to read
 
 1. Lugar de Fala da Djamila Ribeiiro
 2. Think of a number de John Verdon
+3. Boneco De Neve de Jo Nesbo
 
 Games to play
 1. Assassin's Creed II - OK 01/02
@@ -14,8 +15,8 @@ Games to play
 6. Submerged
 7. The Legend of Zelda Twilight Princess
 8. The Legend of Zelda Breath of the Wild
-9. Sonic Unleashed - playing
-10. Bayonetta 2
+9. Sonic Unleashed 
+10. Bayonetta 2 - playing
 11. The Last of Us
 12. Indigo Prophecy
 13. Beyond Two Souls
@@ -46,4 +47,5 @@ Games to play
 38. The Unifinished Swan
 39. The Legend of Zelda
 40. God of War III
+50. Lego Avengers - playing
 
