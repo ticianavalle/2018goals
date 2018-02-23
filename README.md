@@ -14,7 +14,7 @@ Games to play (3)
 5. Everybody's Gone to the Rapture
 6. Submerged
 7. The Legend of Zelda Twilight Princess
-8. The Legend of Zelda Breath of the Wild
+8. The Legend of Zelda Breath of the Wild - playing
 9. Sonic Unleashed 
 10. Bayonetta 2 - OK 13/02
 11. The Last of Us
@@ -26,7 +26,7 @@ Games to play (3)
 17. The Witness
 18. Batman Arkham Asylum
 19. Batman Arkham City
-20. Batman Arkham Knight
+20. Code Name S.T.E.A.M - playing
 21. Dust: An Elysian Tail
 22. Hellblade: Senua’s Sacrifice
 23. Journey
@@ -46,8 +46,8 @@ Games to play (3)
 37. Chrono Trigger
 38. The Unifinished Swan
 39. The Legend of Zelda
-40. God of War III
+40. God of War III - playing
 50. Lego Avengers - playing
 51. Overcooked - OK 13/02
-52. Chibi Robo Zip Lash - playing
+52. Chibi Robo Zip Lash - OK 23/02
 
