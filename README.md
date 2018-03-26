@@ -6,7 +6,7 @@ Books to read
 2. Think of a number de John Verdon
 3. Boneco De Neve de Jo Nesbo
 
-Games to play (5)
+Games to play (6)
 1. Assassin's Creed II - OK 01/02
 2. Assassin's Creed Brotherhood
 3. Assassin's Creed  Revelations
@@ -30,7 +30,7 @@ Games to play (5)
 21. Dust: An Elysian Tail
 22. Hellblade: Senua’s Sacrifice
 23. Journey
-24. Life is Strange Beyond the Storm
+24. Life is Strange Beyond the Storm OK 25/03
 25. Sherlock Holmes: The Devil's Daughter
 26. Tearaway Unfolded
 27. The Order: 1886
