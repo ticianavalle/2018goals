@@ -6,14 +6,14 @@ Books to read
 2. Think of a number de John Verdon
 3. Boneco De Neve de Jo Nesbo
 
-Games to play (6)
+Games to play (7)
 1. Assassin's Creed II - OK 01/02
 2. Assassin's Creed Brotherhood
 3. Assassin's Creed  Revelations
 4. What Remains of Edith Finch
 5. Everybody's Gone to the Rapture
 6. Submerged
-7. The Legend of Zelda Twilight Princess
+7. The Legend of Zelda Twilight Princess - playing
 8. The Legend of Zelda Breath of the Wild - playing
 9. Sonic Unleashed 
 10. Bayonetta 2 - OK 13/02
@@ -33,7 +33,7 @@ Games to play (6)
 24. Life is Strange Beyond the Storm OK 25/03
 25. Sherlock Holmes: The Devil's Daughter
 26. Tearaway Unfolded
-27. The Order: 1886
+27. The Order: 1886 - OK 02/04
 28. Uncharted 4: A Thief's End (2016)
 29. Uncharted: The Lost Legacy (2017)
 30. Uncharted: The Nathan Drake Collection: Uncharted 2: Among Thieves Remastered
