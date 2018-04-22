@@ -6,7 +6,7 @@ Books to read
 2. Think of a number de John Verdon
 3. Boneco De Neve de Jo Nesbo
 
-Games to play (7)
+Games to play (8)
 1. Assassin's Creed II - OK 01/02
 2. Assassin's Creed Brotherhood
 3. Assassin's Creed  Revelations
@@ -14,7 +14,7 @@ Games to play (7)
 5. Everybody's Gone to the Rapture
 6. Submerged
 7. The Legend of Zelda Twilight Princess - playing
-8. The Legend of Zelda Breath of the Wild - playing
+8. The Legend of Zelda Breath of the Wild - OK 22/04
 9. Sonic Unleashed 
 10. Bayonetta 2 - OK 13/02
 11. The Last of Us
