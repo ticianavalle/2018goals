@@ -51,4 +51,6 @@ Games to play (9)
 51. Overcooked - OK 13/02
 52. Chibi Robo Zip Lash - OK 23/02
 53. God of War (2018) - OK 13/05
+54. Gorogoa - OK 05/08
+55. Kirby Triple Deluxe - playing
 
