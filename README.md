@@ -6,7 +6,7 @@ Books to read
 2. Think of a number de John Verdon
 3. Boneco De Neve de Jo Nesbo
 
-Games to play (9)
+Games to play (10)
 1. Assassin's Creed II - OK 01/02
 2. Assassin's Creed Brotherhood
 3. Assassin's Creed  Revelations
@@ -52,5 +52,5 @@ Games to play (9)
 52. Chibi Robo Zip Lash - OK 23/02
 53. God of War (2018) - OK 13/05
 54. Gorogoa - OK 05/08
-55. Kirby Triple Deluxe - playing
+55. Kirby Triple Deluxe - OK 24/08
 
