@@ -6,7 +6,7 @@ Books to read
 2. Think of a number de John Verdon
 3. Boneco De Neve de Jo Nesbo
 
-Games to play (10)
+Games to play (11)
 1. Assassin's Creed II - OK 01/02
 2. Assassin's Creed Brotherhood
 3. Assassin's Creed  Revelations
@@ -29,9 +29,9 @@ Games to play (10)
 20. Code Name S.T.E.A.M - playing
 21. Dust: An Elysian Tail
 22. Hellblade: Senua’s Sacrifice
-23. Journey
+23. Journey OK 24/09
 24. Life is Strange Beyond the Storm OK 25/03
-25. Sherlock Holmes: The Devil's Daughter
+25. Sherlock Holmes: The Devil's Daughter - playing
 26. Tearaway Unfolded
 27. The Order: 1886 - OK 02/04
 28. Uncharted 4: A Thief's End (2016)
